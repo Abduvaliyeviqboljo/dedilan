@@ -1,0 +1,2 @@
+# dedilan
+Abduvaliyev Iqboljon
